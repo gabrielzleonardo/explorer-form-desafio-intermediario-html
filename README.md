@@ -1,1 +1,1 @@
-https://gleonardoalano.github.io/explorer-projeto-6-html-intermediario/
+https://gleonardoalano.github.io/explorer-stage3-projeto-2-html-intermediario/
